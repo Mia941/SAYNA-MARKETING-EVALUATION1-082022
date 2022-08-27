@@ -10,3 +10,11 @@ https://www.la-croix.com/Actualite/Economie-Entreprises/Economie/De-nouvelles-fo
 https://jesuisentrepreneur.fr/idees-business/optique#l-organisation-du-marche 
 https://www.lunettes-originales.fr/dossiers/lunettes-ecologiques/opticiens-engages/ 
 https://www.opticiensparconviction.fr/le-marche-des-lunettes-et-de-l-optique-en-france#:~:text=En%202020%2C%20les%20ventes%20de,lunettes%20chaque%20heure%20en%20France%20! 
+
+Généralement, la partie la plus difficile c'est la collecte d'informations et la rédaction. 
+
+27/08/2022 19:05 - Parties finies : 
+MARKETING & MARKETING DIGITAL : 50% 
+SEO : 0% 
+REDACTION WEB : 100% 
+
